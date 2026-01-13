@@ -1,4 +1,4 @@
-# RIDER CHIPS – What’s your FIRE （『仮面ライダーガッチャード』挿入歌）
+# RIDER CHIPS – What's your FIRE
 
 > **歌詞登録ステータス：プレーン歌詞のみ**
 
